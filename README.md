@@ -4,3 +4,4 @@ Back in the summer of 2023, after living and working in Vancouver for over 3 yea
 
 If your country puts gay, queer or trans people in jail (or worse) simply because of their indentity, then you're on "the list". I feel completely lost in life. There is no "good side". Every country in this world is rotten. Even Europe, in Europe you can only get anywhere in life if you know the right people. I don't belong anywhere. But I do know who my people are (LGBTQ+). If you go after my people, you go after me too. I do not care anymore. If EU law enforcement comes, they wont get me alive. I rather fight, keeping my ideals and believes intact, then succumb to this rotten world. If there is any last act I do in this world, it will be this. You'll all know when it begins.
 
+https://features.hrw.org/features/features/lgbt_laws/?fbclid=IwAR3PtYRhiNHg4tnjtI0h-mem4ORLDVT4o4ZhqCWuqQ30ymJxkhKILglsvzk
