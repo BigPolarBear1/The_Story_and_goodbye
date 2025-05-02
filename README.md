@@ -4,3 +4,5 @@ Back in the summer of 2023, after living and working in Vancouver for over 3 yea
 
 Update: Its 5:30 am. Its too warm in this room below the attic. I cant open my window bc there is some awful smells coming from somewhere outside  Just feel so claustrophobic and stuck here. I have no money. Otherwise I could go backpacking.
 You know, if I were to hang myself, what would it matter. Shit world. Im stuck. Theres nothing left anymore.
+
+Theres just nothing. I cant get a job. People just google sandboxescaper and the search results are  enough for anyone to not hire me. I camt find someone to buy my work. Just stuck in this small room, and some days it literally feels like I vant breath here. With all the respect for my parents, Im 35, im just slowly dying here. This isnt a life anymore. Im just going to do it lol. what else do I even do anymore at this point? 
